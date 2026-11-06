@@ -1,6 +1,6 @@
-
 <img width="1280" height="1704" alt="tumblr_0a9a92f05d61a54447c766b486672da4_ddc7afd5_1280" src="https://github.com/user-attachments/assets/eb5c3b98-056c-495d-9ceb-19c0048f5a1f" />
 
+<a href="https://hits.sh/github.com/corruptedscall/"><img alt="Hits" src="https://hits.sh/github.com/corruptedscall.svg?style=for-the-badge&label=BITE%20COUNT&color=7faf49"/></a>
 
 i go by 　　venomshank / venom / ren 　✦
 and i am an happy 　venomshank　 kin!
