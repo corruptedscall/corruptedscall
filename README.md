@@ -1,5 +1,5 @@
-<img width="1280" height="1704" alt="tumblr_0a9a92f05d61a54447c766b486672da4_ddc7afd5_1280" src="https://github.com/user-attachments/assets/eb5c3b98-056c-495d-9ceb-19c0048f5a1f" />
-
+inherited 　your dad's, crazy 　eyes
+<img width="2048" height="2048" alt="Untitled129_20261106114145" src="https://github.com/user-attachments/assets/4c30b6aa-998e-4d10-8f7a-304201db75bb" />
 <a href="https://hits.sh/github.com/corruptedscall/"><img alt="Hits" src="https://hits.sh/github.com/corruptedscall.svg?style=for-the-badge&label=BITE%20COUNT&color=7faf49"/></a>
 
 i go by 　　venomshank / venom / ren 　✦
