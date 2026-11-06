@@ -7,7 +7,8 @@ inherited　　　　　　　 　your dad's,　 crazy　　　　 　eyes
 　　 <img width="99" height="56" alt="tumblr_09a1155c61a5ba3718408414896817b1_670ea4a0_100" src="https://github.com/user-attachments/assets/8c3e9e02-8c45-4077-9344-51fec770826f" />
 　　 <img width="99" height="56" alt="22462746_Ex3zGlF5M0PQXak" src="https://github.com/user-attachments/assets/2ee49bfe-654e-4d90-93b5-4cdc037ec856" />
 
- 　　 　　i go by 　　venomshank / venom / ren 　ou 　　overseer  　　　　 & 　　　　　  an venomshank　 kin
+ 　　 　　i go by 　　venomshank / venom / ren 　ou 　　overseer  　　　　 & 　　　　　  an venomshank　 kin   
+<a href=https://corruptedcalls.straw.page/>CLICK ME FOR ALL MY SOCIALS!<table></a>
 
 ✦ 　if you see me in 　ponytown, feel free to :  
 cuddle n hug, kiss, boop, snuggle are comfortable!  
