@@ -6,17 +6,18 @@
 <p align="center"> best viewed in : pc / laptop    </p>
 <p align="center"> <img width="99" height="56" alt="tumblr_2b58ff688410cc4c4d2685a36ab2f930_c918db2e_100" src="https://github.com/user-attachments/assets/b62ae5d8-60da-4aa9-b88b-798574ccfd76" /> <img width="99" height="56" alt="tumblr_112c63948fcf18f7c214953a5fa0ce42_e1a86c97_100" src="https://github.com/user-attachments/assets/c6a04c38-a2de-4b7a-8d1c-2bd09dc21677" /> <img width="99" height="56" alt="tumblr_09a1155c61a5ba3718408414896817b1_670ea4a0_100" src="https://github.com/user-attachments/assets/8c3e9e02-8c45-4077-9344-51fec770826f" />  </p> 
 
-<p align="center"> venomshank / ren / reenzzsh / overseer </p>
-<a href=https://corruptedcalls.straw.page/>CLICK ME FOR ALL MY SOCIALS!</a>
-
+<p align="center"> venomshank　　 /　　 ren　　 / 　　reenzzsh　　 / 　　overseer </p>
+<p align="center"> <a href=https://corruptedcalls.straw.page/>strawpage</a>　　　　 <a href=https://corruptedscall.atabook.org/>atabook</a> </p>   
+</space>
 ✦ 　if you see me in 　ponytown, feel free to :  
-cuddle n hug, kiss, boop, snuggle are comfortable!  
+cuddle n hug, kiss, boop, snuggle are comfortable!  i don't mind at all besides i wanted it!   
+i sat alone means i do not have friend beside me ofc, but i'm actually auramaxxing (this is a joke pls) might been busy or smth.
 
 <details>
 <summary> 　 before you interact w me </summary>
 </div>
-iwc (interact with caution n care) ::  　　if you want to interact w me! I'm very insensitive in some words... flirting is not alright since i don't really like it unless you are my close friend, i am also suspected BPD disorder so please int w care!  </p>
-yumeshipping :: 　　 i am an selective yumeshipper which i only confirm a specific people and close people, but if you're a voidsharing, or a nonsharing, iwc. yumeship list will be in a new strawpage later.    </p>
+iwc (interact with caution n care) ::  　　if you want to interact w me! I'm very insensitive in some words... flirting is not alright since i don't really like it unless you are my close friend, i am also suspected BPD, so please int w care!  </p>
+yumeshipping :: 　　 i am an selective yumeshipper which i only confirm a specific people and close people, but if you're a voidsharing, or a nonsharing, iwc. yumeship are in strawpage.    </p>
 dni :: basic dni, t.r.a.s.h ( Transphobic, racist, ableist, sexist, or homophobic ), cults / weird religion clans, groomers.
 <br>
 </details>
@@ -25,8 +26,10 @@ dni :: basic dni, t.r.a.s.h ( Transphobic, racist, ableist, sexist, or homophobi
 <summary> 　　alliances </summary> 
 </div>
   　　 　　<a href=https://rentry.co/ro9loxians>the ro9loxians</a>
-　&　shoutout to ,　greenames,　<a href=https://ponytown.fandom.com/wiki/Paws_Across_The_World>paws across the world</a> !!!
- 　　 　  <img width="200" height="200" alt="668_sin_titulo_20261106074355" src="https://github.com/user-attachments/assets/9246c3b2-19e0-4d94-ae04-7e20701805ff" />
+　&　shoutout to ,　greenames,　<a href=https://ponytown.fandom.com/wiki/Paws_Across_The_World>paws across the world</a>  </div>
+ 　 　& <a href=https://github.com/callsign8802>karl</a> n <a href=https://github.com/doomed-potential>jague</a> these stinker eww! and also sisyphus! ^o^ can't forget my bird.
+</div>
+<img width="200" height="200" alt="668_sin_titulo_20261106074355" src="https://github.com/user-attachments/assets/9246c3b2-19e0-4d94-ae04-7e20701805ff" />
 <br>
 </details>
 
@@ -38,6 +41,4 @@ dni :: basic dni, t.r.a.s.h ( Transphobic, racist, ableist, sexist, or homophobi
     </td>
  </tr>
 </table>
- 　　  　　  　　 
-meep!　 　  n　 　  chirp!  
-  　　 　  　　 　<img width="300" height="300" alt="Untitled129_20261106143258" src="https://github.com/user-attachments/assets/33e33047-7bc4-4c47-a367-7dcfb05f119c" />
+if i follow you it means you're cool
