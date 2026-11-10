@@ -11,14 +11,16 @@
 </space>
 ✦ 　if you see me in 　ponytown, feel free to :  
 cuddle n hug, kiss, boop, snuggle are comfortable!  i don't mind at all besides i wanted it!   
-i sat alone means i do not have friend beside me ofc, but i'm actually auramaxxing (this is a joke pls) might been busy or smth.
+══════════════════════════════════════════════ </p>
+sometimes i leave cuddles and hug so i apoligize with that, I get distracted easily when my friend came over and I was panicked. 
 
 <details>
 <summary> 　 before you interact w me </summary>
 </div>
 iwc (interact with caution n care) ::  　　if you want to interact w me! I'm very insensitive in some words... flirting is not alright since i don't really like it unless you are my close friend, i am also suspected BPD, so please int w care!  </p>
 yumeshipping :: 　　 i am an selective yumeshipper which i only confirm a specific people and close people, but if you're a voidsharing, or a nonsharing, iwc. yumeship are in strawpage.    </p>
-dni :: basic dni, t.r.a.s.h ( Transphobic, racist, ableist, sexist, or homophobic ), cults / weird religion clans, groomers.
+dni :: basic dni, t.r.a.s.h ( Transphobic, racist, ableist, sexist, or homophobic ), cults / weird religion clans, groomers.   </p>
+information because of a few incidents :: i am very bad at communicating and might make people nearby uncomfortable, i can't control my emotions and feelings wisely and carefully, i have a very fast emotion swing i can get upset and frustrated easily. i always say something repetitive that most people got uncomfortable and boring. please when I get off track just remind me everytime. because I have a bad brain signals + hard to control my behaviour. i can be very energetic, anxious, and annoying too. 
 <br>
 </details>
 
@@ -27,7 +29,8 @@ dni :: basic dni, t.r.a.s.h ( Transphobic, racist, ableist, sexist, or homophobi
 </div>
   　　 　　<a href=https://rentry.co/ro9loxians>the ro9loxians</a>
 　&　shoutout to ,　greenames,　<a href=https://ponytown.fandom.com/wiki/Paws_Across_The_World>paws across the world</a>  </div>
- 　 　& <a href=https://github.com/callsign8802>karl</a> n <a href=https://github.com/doomed-potential>jague</a> these stinker eww! and also sisyphus! ^o^ can't forget my bird.
+ 　 　& <a href=https://github.com/callsign8802>karl</a> n <a href=https://github.com/doomed-potential>jague</a> these stinker eww! and also sisyphus! ^o^ can't forget my bird.     
+  
 </div>
 <img width="200" height="200" alt="668_sin_titulo_20261106074355" src="https://github.com/user-attachments/assets/9246c3b2-19e0-4d94-ae04-7e20701805ff" />
 <br>
