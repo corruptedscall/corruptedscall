@@ -40,7 +40,7 @@ information because of a few incidents :: i am very bad at communicating and mig
 <table>
     <tr>
       <td>
- 　　   And even　  if I’ll be the only　 　  one who will survive, 　 　the world　  will grieve 　 　 the loss of　 　  you
+ 　　   <p> $${\color{#8EC05C}are you  　　prepared to 　　 feel the  　　wrath of the 　　 undead? }$$ </p>
     </td>
  </tr>
 </table>
