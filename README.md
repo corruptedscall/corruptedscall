@@ -12,7 +12,7 @@
 </space>
 ✦ 　if you see me in 　ponytown, feel free to :  
 cuddle n hug, kiss, boop, snuggle are comfortable!  i don't mind at all besides i wanted it!   
-<div></div> $${\color{#8EC05C} ══════════════════════════════════════════════ }$$ 
+<div> $${\color{#8EC05C} ══════════════════════════════════════════════ }$$  </div>
 sometimes i leave cuddles and hug so i apoligize with that, I get distracted easily whenever my friend came over. 
 
 <details>
