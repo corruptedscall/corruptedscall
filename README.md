@@ -1,5 +1,12 @@
-　　　　　　　　inherited　　　　　　　 　your dad's,　 crazy　　　　 　eyes
-<p align="center"> <img width="395" height="400" alt="Untitled129_20261106114145" src="https://github.com/user-attachments/assets/4c30b6aa-998e-4d10-8f7a-304201db75bb" /> </p>
+<br> 
+<table>
+    <tr>
+      <td>
+ 　　   <p> $${\color{#8EC05C}are you  　　prepared to 　　 feel the  　　wrath of the 　　 undead? }$$ </p>
+    </td>
+ </tr>
+</table>
+<p align="center"> <img width="350" height="350" alt="Untitled129_20261106114145" src="https://github.com/user-attachments/assets/4c30b6aa-998e-4d10-8f7a-304201db75bb" /> </p>
 
 
 <p align="center"> <a href="https://hits.sh/github.com/corruptedscall/"><img alt="Hits" src="https://hits.sh/github.com/corruptedscall.svg?style=for-the-badge&label=BITE%20COUNT&color=7faf49"/></a> </p>
@@ -40,7 +47,7 @@ information because of a few incidents :: i am very bad at communicating and mig
 <table>
     <tr>
       <td>
- 　　   <p> $${\color{#8EC05C}are you  　　prepared to 　　 feel the  　　wrath of the 　　 undead? }$$ </p>
+ 　　   <p> $${\color{#8EC05C}inherited  　　your 　 dads 　　 crazy  　　eyes 　　  }$$ </p>
     </td>
  </tr>
 </table>
