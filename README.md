@@ -12,15 +12,15 @@
 </space>
 ✦ 　if you see me in 　ponytown, feel free to :  
 cuddle n hug, kiss, boop, snuggle are comfortable!  i don't mind at all besides i wanted it!   
-══════════════════════════════════════════════ </p>
-sometimes i leave cuddles and hug so i apoligize with that, I get distracted easily when my friend came over and I was panicked. 
+<div></div> $${\color{#8EC05C} ══════════════════════════════════════════════ }$$ 
+sometimes i leave cuddles and hug so i apoligize with that, I get distracted easily whenever my friend came over. 
 
 <details>
 <summary> 　 before you interact w me </summary>
 </div>
 iwc (interact with caution n care) ::  　　if you want to interact w me! I'm very insensitive in some words... flirting is not alright since i don't really like it unless you are my close friend, i am also suspected BPD, so please int w care!  </p>
 yumeshipping :: 　　 i am an selective yumeshipper which i only confirm a specific people and close people, but if you're a voidsharing, or a nonsharing, iwc. yumeship are in strawpage.    </p>
-dni :: basic dni, t.r.a.s.h ( Transphobic, racist, ableist, sexist, or homophobic ), cults / weird religion clans, groomers.   </p>
+dni :: basic dni, dni under 13, t.r.a.s.h ( Transphobic, racist, ableist, sexist, or homophobic ), cults / weird religion clans, groomers.   </p>
 information because of a few incidents :: i am very bad at communicating and might make people nearby uncomfortable, i can't control my emotions and feelings wisely and carefully, i have a very fast emotion swing i can get upset and frustrated easily. i always say something repetitive that most people got uncomfortable and boring. please when I get off track just remind me everytime. because I have a bad brain signals + hard to control my behaviour. i can be very energetic, anxious, and annoying too. 
 <br>
 </details>
