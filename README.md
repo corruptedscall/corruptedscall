@@ -11,9 +11,8 @@
 <p align="center"> <a href=https://corruptedcalls.straw.page/>strawpage</a>　　　　 <a href=https://corruptedscall.atabook.org/>atabook</a> </p>   
 </space>
 ✦ 　if you see me in 　ponytown, feel free to :  
-cuddle n hug, kiss, boop, snuggle are comfortable!  i don't mind at all besides i wanted it! </p>   
-
-$${\color{#8EC05C}══════════════════════════════════════════════}$$     
+cuddle n hug, kiss, boop, snuggle are comfortable!  i don't mind at all besides i wanted it! </p>     
+$${\color{#8EC05C}═════════════════════════════════════}$$     
 
 <p> sometimes i leave cuddles and hug so i apoligize with that, I get distracted easily whenever my friend came over. </p>
 
