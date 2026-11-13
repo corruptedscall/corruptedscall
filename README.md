@@ -1,11 +1,5 @@
-<br> 
-<table>
-    <tr>
-      <td>
- 　　   <p> $${\color{#8EC05C}are you  　　prepared to 　　 feel the  　　wrath of the 　　 undead? }$$ </p>
-    </td>
- </tr>
-</table>
+<p align="center"> $${\color{#8EC05C}are you  　　prepared to 　　 feel the  　　wrath of the 　　 undead? }$$ </p>
+
 <p align="center"> <img width="350" height="350" alt="Untitled129_20261106114145" src="https://github.com/user-attachments/assets/4c30b6aa-998e-4d10-8f7a-304201db75bb" /> </p>
 
 
