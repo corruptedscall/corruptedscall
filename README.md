@@ -20,7 +20,7 @@ cuddle n hug, kiss, boop, snuggle are comfortable!  i don't mind at all besides 
 
 $${\color{#8EC05C}════════════════════════════════════}$$     
 
-<p> ๋࣭ ⭑ sometimes $${\color{#51632c}i leave cuddles and hug}$$ so i apoligize with that, I get distracted easily whenever my friend came over. </p>
+<p> ๋࣭ ⭑ sometimes $${\color{#51632c}𝗹𝗲𝗮𝘃𝗲　𝗰𝘂𝗱𝗱𝗹𝗲𝘀　𝗮𝗻𝗱　𝗵𝘂𝗴}$$ so i apoligize with that, I get distracted easily whenever my friend came over. </p>
 
 <details>
 <summary> 　<img width="20" height="20" alt="ce3c2d7d" src="https://github.com/user-attachments/assets/4b79b5bb-6d48-4c7c-b9eb-e59f77262475" /> 𝒸𝓁𝒾ck　 me 　𝑜𝓅eꪀ  ! </summary> 
