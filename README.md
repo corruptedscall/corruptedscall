@@ -21,7 +21,7 @@ $${\color{#8EC05C}════════════════════�
 <p> sometimes i leave cuddles and hug so i apoligize with that, I get distracted easily whenever my friend came over. </p>
 
 <details>
-<summary> 　 before you interact w me </summary>
+<summary> 　<img width="20" height="20" alt="ce3c2d7d" src="https://github.com/user-attachments/assets/4b79b5bb-6d48-4c7c-b9eb-e59f77262475" />　　alliances </summary> 
 </div>
 iwc (interact with caution n care) ::  　　if you want to interact w me! I'm very insensitive in some words... flirting is not alright since i don't really like it unless you are my close friend, i am also suspected BPD, so please int w care!  </p>
 yumeshipping :: 　　 i am an selective yumeshipper which i only confirm a specific people and close people, but if you're a voidsharing, or a nonsharing, iwc. yumeship are in strawpage.    </p>
@@ -30,7 +30,7 @@ Due to a few past incidents, I would like to clarify that I struggle with commun
 <br>
 </details>
 <details>
-<summary> 　　alliances </summary> 
+<summary> 　<img width="20" height="20" alt="ce3c2d7d" src="https://github.com/user-attachments/assets/4b79b5bb-6d48-4c7c-b9eb-e59f77262475" />　　alliances </summary> 
 </div>
   　　 　　<a href=https://rentry.co/ro9loxians>the ro9loxians</a>
 　&　shoutout to ,　greenames,　<a href=https://ponytown.fandom.com/wiki/Paws_Across_The_World>paws across the world</a>  </div>
@@ -40,6 +40,6 @@ Due to a few past incidents, I would like to clarify that I struggle with commun
 <br>
 </details>
 
-<img width="20" height="20" alt="ce3c2d7d" src="https://github.com/user-attachments/assets/4b79b5bb-6d48-4c7c-b9eb-e59f77262475" />
+
 
 <p align="center"> totally not the guy who keeps listening to cmf ost all the time </p>  
