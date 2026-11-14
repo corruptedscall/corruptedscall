@@ -40,12 +40,6 @@ Due to a few past incidents, I would like to clarify that I struggle with commun
 <br>
 </details>
 
-<br> 
-<table>
-    <tr>
-      <td>
- 　　   <p> $${\color{#8EC05C}inherited  　　your 　 dads 　　 crazy  　　eyes 　　  }$$ </p>
-    </td>
- </tr>
-</table>
+<img width="20" height="20" alt="ce3c2d7d" src="https://github.com/user-attachments/assets/4b79b5bb-6d48-4c7c-b9eb-e59f77262475" />
+
 <p align="center"> totally not the guy who keeps listening to cmf ost all the time </p>  
