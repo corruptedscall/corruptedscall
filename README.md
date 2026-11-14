@@ -1,10 +1,7 @@
-　 　 　　 　 　　 　 　　 　 　　 　 　 $${\color{#8EC05C}little　bird　 }$$ 
-
-　 　 　 　 　 　 　$${\color{#8EC05C}flying in the skies　　 }$$ 
-             
-  　 　 　 　 　 　 　 　 　 　 　 　 　 　     $${\color{#8EC05C}flying in the skies　　 }$$ 
-                                  
- 　 　$${\color{#8EC05C}flying in the skies　　 }$$
+　 　 　　 　 　　 　 　　 　 　　 　 <p>　 $${\color{#8EC05C}little　bird　 }$$ </p>
+　 　 　 　 　 　 　 <p> $${\color{#8EC05C}big  　 　　 　bird}$$ </p>
+  　 　 　 　 　 　 　 　 　 　 　 　 　 　  <p>    $${\color{#8EC05C}flying　 in　　 the 　　skies　　 }$$ </p>
+ 　  <p>　$${\color{#8EC05C}come  　  back   　 here　　 }$$ </p>
 
         
 <p align="center"> <img width="600" height="350" alt="Untitled136_20261114113550" src="https://github.com/user-attachments/assets/297b994d-d00f-4891-ae32-3e01b279a2ce" />   </p>  
