@@ -18,7 +18,7 @@
 <img width="50" height="60" alt="Soda_Mini_Venomshank" src="https://github.com/user-attachments/assets/187b181a-aee1-4593-8a0e-ea44258a91da" /> ✦ 　if you see me in 　ponytown, feel free to :  
 cuddle n hug, kiss, boop, snuggle are comfortable!  i don't mind at all besides i wanted it! </p>     
 
-$${\color{#8EC05C}════════════════════════════════════}$$     
+$${\color{#8EC05C}════════════════════════════}$$     
 
 <p> ๋࣭ ⭑ sometimes $${\color{#51632c}𝗹𝗲𝗮𝘃𝗲　𝗰𝘂𝗱𝗱𝗹𝗲𝘀　𝗮𝗻𝗱　𝗵𝘂𝗴}$$ so i apoligize with that, I get distracted easily whenever my friend came over. </p>
 
