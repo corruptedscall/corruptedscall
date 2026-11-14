@@ -21,26 +21,32 @@ $${\color{#8EC05C}════════════════════�
 <p> sometimes i leave cuddles and hug so i apoligize with that, I get distracted easily whenever my friend came over. </p>
 
 <details>
-<summary> 　<img width="20" height="20" alt="ce3c2d7d" src="https://github.com/user-attachments/assets/4b79b5bb-6d48-4c7c-b9eb-e59f77262475" />　　open me open me! </summary> 
+<summary> 　<img width="20" height="20" alt="ce3c2d7d" src="https://github.com/user-attachments/assets/4b79b5bb-6d48-4c7c-b9eb-e59f77262475" />　　$${\color{#8EC05C}open　 me 　open  me!}$$ </summary> 
 </div>
 <p>
 <details>
-<summary> 　<img width="20" height="20" alt="2c1e6421" src="https://github.com/user-attachments/assets/1aef2469-bb71-4f7c-8f7a-1296a47b23d0" />　　before you interact </summary> 
+<summary> 　<img width="20" height="20" alt="2c1e6421" src="https://github.com/user-attachments/assets/1aef2469-bb71-4f7c-8f7a-1296a47b23d0" />　　$${\color{#8EC05C}before　 you 　interact}$$ </summary>   </summary> 
 </div>
 　　　iwc (interact with caution n care) ::  　　if you want to interact w me! I'm very insensitive in some words... flirting is not alright since i don't really like it unless you are my close friend, i am also suspected BPD, so please int w care!  </p>
 yumeshipping :: 　　 i am an selective yumeshipper which i only confirm a specific people and close people, but if you're a voidsharing, or a nonsharing, iwc. yumeship are in strawpage.    </p>
 　　　dni :: basic dni, dni under 13, t.r.a.s.h ( Transphobic, racist, ableist, sexist, or homophobic ), cults / weird religion clans, groomers.   </p>  
 　　　due to a few past incidents, i would like to clarify that i struggle with communication and may unintentionally make people around me uncomfortable. i have difficulty managing my emotions, which can shift very quickly, causing me to become upset or frustrated easily. i also tend to repeat myself excessively, which may become tiring or uncomfortable for others. if i ever get off track, please remind me or gently redirect me. i can also be overly energetic, anxious, and unintentionally overwhelming at times. i sincerely appreciate your patience and understanding.
 </details>
-
+<p>
 <details>
-<summary> 　<img width="20" height="20" alt="2c1e6421" src="https://github.com/user-attachments/assets/1aef2469-bb71-4f7c-8f7a-1296a47b23d0" />　　alliances </summary> 
+<summary> 　<img width="20" height="20" alt="2c1e6421" src="https://github.com/user-attachments/assets/1aef2469-bb71-4f7c-8f7a-1296a47b23d0" />　　$${\color{#8EC05C}alliances}$$ </summary> 
 </div>
   　　 　　<a href=https://rentry.co/ro9loxians>the ro9loxians</a>
 　&　shoutout to ,　greenames,　<a href=https://ponytown.fandom.com/wiki/Paws_Across_The_World>paws across the world</a>  </div>
  　 　& <a href=https://github.com/callsign8802>karl</a> n <a href=https://github.com/doomed-potential>jague</a>   
-  
-<img width="200" height="200" alt="668_sin_titulo_20261106074355" src="https://github.com/user-attachments/assets/9246c3b2-19e0-4d94-ae04-7e20701805ff" /> <br> </details>
+ 
+<img width="200" height="200" alt="668_sin_titulo_20261106074355" src="https://github.com/user-attachments/assets/9246c3b2-19e0-4d94-ae04-7e20701805ff" />
+</details>
+<details>
+<summary> 　<img width="20" height="20" alt="2c1e6421" src="https://github.com/user-attachments/assets/1aef2469-bb71-4f7c-8f7a-1296a47b23d0" />　　$${\color{#8EC05C}gallery}$$ </summary> 
+</div>
+ hi
+<br> </details>
 
 
 <p align="center"> totally not the guy who keeps listening to cmf ost all the time </p>  
