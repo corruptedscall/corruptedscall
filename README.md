@@ -36,9 +36,10 @@ yumeshipping :: 　　 i am an selective yumeshipper which i only confirm a spec
 <details>
 <summary> 　<img width="20" height="20" alt="2c1e6421" src="https://github.com/user-attachments/assets/1aef2469-bb71-4f7c-8f7a-1296a47b23d0" />　alliances </summary> 
 </div>
-  　　 　　<a href=https://rentry.co/ro9loxians>the rob10xians</a> 　 ✷　  <a href=https://github.com/pwppy>rhett/kiki</a>　  <a href=https://github.com/healrr>sword</a>　  <a href=https://github.com/clockworkclover>kaito</a>　  <a href=https://github.com/deviousduoz>jay</a>　  <a href=https://github.com/202xyuri>null</a>　  <a href=https://github.com/casino-flush>chance</a> 　 <a href=https://github.com/prizeflush>elli</a>　  <a href=https://github.com/TheTrueEyecollective>scythe/grapplinghook</a>　  & 　 scarlet
+  　　 　　<a href=https://rentry.co/ro9loxians>the rob10xians</a> 　 ✧　  ꒰১ <a href=https://github.com/pwppy>rhett/kiki</a>　  <a href=https://github.com/healrr>sword</a>　  <a href=https://github.com/clockworkclover>kaito</a>　  <a href=https://github.com/deviousduoz>jay</a>　  <a href=https://github.com/202xyuri>null</a>　  <a href=https://github.com/casino-flush>chance</a> 　 <a href=https://github.com/prizeflush>elli</a>　  <a href=https://github.com/TheTrueEyecollective>scythe/grapplinghook</a>　  & 　 scarlet ໒꒱
 <div>
   　best couple :  <a href=https://github.com/callsign8802>casign</a> & <a href=https://github.com/doomed-potential>jague</a>  
+        <div>
         　 shoutout to ,　greenames,　<a href=https://ponytown.fandom.com/wiki/Paws_Across_The_World>paws across the world</a> !! </div>
  
 <img width="200" height="200" alt="668_sin_titulo_20261106074355" src="https://github.com/user-attachments/assets/9246c3b2-19e0-4d94-ae04-7e20701805ff" />
