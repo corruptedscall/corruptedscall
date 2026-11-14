@@ -1,4 +1,4 @@
-<p align="center"> $${\color{#8EC05C}little　bird　 }$$ </p>
+　 　 　　 　 　　 　 　　 　 　　 　 　 $${\color{#8EC05C}little　bird　 }$$ 
 
 　 　 　 　 　 　 $${\color{#8EC05C}　big　bird}$$
       
