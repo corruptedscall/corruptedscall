@@ -1,6 +1,8 @@
-<p align="center"> $${\color{#8EC05C}little　bird　big　bird 　flying 　in  　the sky 　come 　back　here 　man　 give 　 me　  my　  daughter. }$$ </p>
+<p align="center"> $${\color{#8EC05C}little　bird　 }$$ </p>
 
-<p align="center"> <img width="350" height="350" alt="Untitled129_20261106114145" src="https://github.com/user-attachments/assets/4c30b6aa-998e-4d10-8f7a-304201db75bb" /> </p>
+　 　 　 $${\color{#8EC05C}　big　bird}$$
+ 　 　 　 　$${\color{#8EC05C}flying 　in  　the sky 　come 　back　here 　man　 give 　 me　  my　  daughter　 }$$
+<p align="center"> <img width="600" height="350" alt="Untitled136_20261114113550" src="https://github.com/user-attachments/assets/297b994d-d00f-4891-ae32-3e01b279a2ce" />   </p>  
 
 <p align="center"> VENOMSHANK KIN! </p> 
 <p align="center"> <a href="https://hits.sh/github.com/corruptedscall/"><img alt="Hits" src="https://hits.sh/github.com/corruptedscall.svg?style=for-the-badge&label=BITE%20COUNT&color=7faf49"/></a> </p>
