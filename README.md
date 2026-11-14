@@ -23,7 +23,7 @@ $${\color{#8EC05C}════════════════════�
 <p> sometimes i leave cuddles and hug so i apoligize with that, I get distracted easily whenever my friend came over. </p>
 
 <details>
-<summary> 　<img width="20" height="20" alt="ce3c2d7d" src="https://github.com/user-attachments/assets/4b79b5bb-6d48-4c7c-b9eb-e59f77262475" /> open　 me 　open  me! </summary> 
+<summary> 　<img width="20" height="20" alt="ce3c2d7d" src="https://github.com/user-attachments/assets/4b79b5bb-6d48-4c7c-b9eb-e59f77262475" /> 𝒸𝓁𝒾ck　 me 　𝑜𝓅eꪀ  ! </summary> 
 </div>
 <p>
 <details>
@@ -51,6 +51,6 @@ yumeshipping :: 　　 i am an selective yumeshipper which i only confirm a spec
 </div>
  hi
 <br> </details>
-
+<p align="center"> huge thanks to my best friend <a href=https://github.com/pwppy>rhett/kiki</a> for helping me with my github! </p>
 
 <p align="center"> totally not the guy who keeps listening to cmf ost all the time </p>  
