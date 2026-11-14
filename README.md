@@ -21,11 +21,11 @@ $${\color{#8EC05C}════════════════════�
 <p> sometimes i leave cuddles and hug so i apoligize with that, I get distracted easily whenever my friend came over. </p>
 
 <details>
-<summary> 　<img width="20" height="20" alt="ce3c2d7d" src="https://github.com/user-attachments/assets/4b79b5bb-6d48-4c7c-b9eb-e59f77262475" />　　$${\color{#8EC05C}open　 me 　open  me!}$$ </p> </summary> 
+<summary> 　<img width="20" height="20" alt="ce3c2d7d" src="https://github.com/user-attachments/assets/4b79b5bb-6d48-4c7c-b9eb-e59f77262475" />　<p>　$${\color{#8EC05C}open　 me 　open  me!}$$ </p> </summary> 
 </div>
 <p>
 <details>
-<summary> 　<img width="20" height="20" alt="2c1e6421" src="https://github.com/user-attachments/assets/1aef2469-bb71-4f7c-8f7a-1296a47b23d0" />　　$${\color{#8EC05C}before　 you 　interact}$$ </p> </summary>   </summary> 
+<summary> 　<img width="20" height="20" alt="2c1e6421" src="https://github.com/user-attachments/assets/1aef2469-bb71-4f7c-8f7a-1296a47b23d0" />　<p>　$${\color{#8EC05C}before　 you 　interact}$$ </p> </summary>   </summary> 
 </div>
 　　　iwc (interact with caution n care) ::  　　if you want to interact w me! I'm very insensitive in some words... flirting is not alright since i don't really like it unless you are my close friend, i am also suspected BPD, so please int w care!  </p>
 yumeshipping :: 　　 i am an selective yumeshipper which i only confirm a specific people and close people, but if you're a voidsharing, or a nonsharing, iwc. yumeship are in strawpage.    </p>
@@ -34,7 +34,7 @@ yumeshipping :: 　　 i am an selective yumeshipper which i only confirm a spec
 </details>
 <p>
 <details>
-<summary> 　<img width="20" height="20" alt="2c1e6421" src="https://github.com/user-attachments/assets/1aef2469-bb71-4f7c-8f7a-1296a47b23d0" />　　$${\color{#8EC05C}alliances}$$ </p> </summary> 
+<summary> 　<img width="20" height="20" alt="2c1e6421" src="https://github.com/user-attachments/assets/1aef2469-bb71-4f7c-8f7a-1296a47b23d0" />　<p>　$${\color{#8EC05C}alliances}$$ </p> </summary> 
 </div>
   　　 　　<a href=https://rentry.co/ro9loxians>the ro9loxians</a>
 　&　shoutout to ,　greenames,　<a href=https://ponytown.fandom.com/wiki/Paws_Across_The_World>paws across the world</a>  </div>
@@ -43,7 +43,7 @@ yumeshipping :: 　　 i am an selective yumeshipper which i only confirm a spec
 <img width="200" height="200" alt="668_sin_titulo_20261106074355" src="https://github.com/user-attachments/assets/9246c3b2-19e0-4d94-ae04-7e20701805ff" />
 </details>
 <details>
-<summary> 　<img width="20" height="20" alt="2c1e6421" src="https://github.com/user-attachments/assets/1aef2469-bb71-4f7c-8f7a-1296a47b23d0" />　　$${\color{#8EC05C}gallery}$$ </p> </summary> 
+<summary> 　<img width="20" height="20" alt="2c1e6421" src="https://github.com/user-attachments/assets/1aef2469-bb71-4f7c-8f7a-1296a47b23d0" />　<p>　$${\color{#8EC05C}gallery}$$ </p> </summary> 
 </div>
  hi
 <br> </details>
