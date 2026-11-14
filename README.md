@@ -2,7 +2,7 @@
 
 <p align="center"> <img width="350" height="350" alt="Untitled129_20261106114145" src="https://github.com/user-attachments/assets/4c30b6aa-998e-4d10-8f7a-304201db75bb" /> </p>
 
-
+<p align="center"> VENOMSHANK KIN! </p> 
 <p align="center"> <a href="https://hits.sh/github.com/corruptedscall/"><img alt="Hits" src="https://hits.sh/github.com/corruptedscall.svg?style=for-the-badge&label=BITE%20COUNT&color=7faf49"/></a> </p>
 <p align="center"> best viewed in : pc / laptop    </p>
 <p align="center"> <img width="99" height="56" alt="tumblr_2b58ff688410cc4c4d2685a36ab2f930_c918db2e_100" src="https://github.com/user-attachments/assets/b62ae5d8-60da-4aa9-b88b-798574ccfd76" /> <img width="99" height="56" alt="tumblr_112c63948fcf18f7c214953a5fa0ce42_e1a86c97_100" src="https://github.com/user-attachments/assets/c6a04c38-a2de-4b7a-8d1c-2bd09dc21677" /> <img width="99" height="56" alt="tumblr_09a1155c61a5ba3718408414896817b1_670ea4a0_100" src="https://github.com/user-attachments/assets/8c3e9e02-8c45-4077-9344-51fec770826f" />  </p> 
