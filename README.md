@@ -2,7 +2,7 @@
 
 　 　 　 　 　 　 $${\color{#8EC05C}　big　bird}$$
       
- 　 　$${\color{#8EC05C}flying 　in  　the sky 　come 　back　here 　man　 give 　 me　  my　  daughter }$$
+ 　 　$${\color{#8EC05C}flying 　in  　the sky 　come 　back　here 　man　 give 　 me　  my　  daughter}$$
         
 <p align="center"> <img width="600" height="350" alt="Untitled136_20261114113550" src="https://github.com/user-attachments/assets/297b994d-d00f-4891-ae32-3e01b279a2ce" />   </p>  
 
