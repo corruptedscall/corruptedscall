@@ -12,8 +12,7 @@
 
 
 <p align="center"> if i follow you it means you're cool! but let me know by contacting me in my ata-book if i followed someone problematic </p>  
-
-✦ 　if you see me in 　ponytown, feel free to :  
+<img width="50" height="60" alt="Soda_Mini_Venomshank" src="https://github.com/user-attachments/assets/187b181a-aee1-4593-8a0e-ea44258a91da" /> ✦ 　if you see me in 　ponytown, feel free to :  
 cuddle n hug, kiss, boop, snuggle are comfortable!  i don't mind at all besides i wanted it! </p>     
 
 $${\color{#8EC05C}════════════════════════════════════}$$     
@@ -21,7 +20,7 @@ $${\color{#8EC05C}════════════════════�
 <p> sometimes i leave cuddles and hug so i apoligize with that, I get distracted easily whenever my friend came over. </p>
 
 <details>
-<summary> 　<img width="20" height="20" alt="ce3c2d7d" src="https://github.com/user-attachments/assets/4b79b5bb-6d48-4c7c-b9eb-e59f77262475" /> open　 me 　open  me!}$$ </summary> 
+<summary> 　<img width="20" height="20" alt="ce3c2d7d" src="https://github.com/user-attachments/assets/4b79b5bb-6d48-4c7c-b9eb-e59f77262475" /> open　 me 　open  me! </summary> 
 </div>
 <p>
 <details>
