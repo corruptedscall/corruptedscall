@@ -49,10 +49,12 @@ yumeshipping :: 　　 i am an selective yumeshipper which i only confirm a spec
 <details>
 <summary> 　<img width="20" height="20" alt="2c1e6421" src="https://github.com/user-attachments/assets/1aef2469-bb71-4f7c-8f7a-1296a47b23d0" />　gallery </summary> 
 </div>
- hi
-<br> </details>
+ hi <br> 
+</details>   
 
-<div>
+
+
+
 <p align="center"> huge thanks to my best friend <a href=https://github.com/pwppy>rhett/kiki</a> for helping me with my github! </p>
 
 <p align="center"> totally not the guy who keeps listening to cmf ost all the time </p>  
