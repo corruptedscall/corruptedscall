@@ -23,11 +23,11 @@ $${\color{#8EC05C}════════════════════�
 <p> ๋࣭ ⭑ sometimes $${\color{#51632c}𝗹𝗲𝗮𝘃𝗲　𝗰𝘂𝗱𝗱𝗹𝗲𝘀　𝗮𝗻𝗱　𝗵𝘂𝗴}$$ so i apoligize with that, I get distracted easily whenever my friend came over. </p>
 
 <details>
-<summary> 　<img width="20" height="20" alt="ce3c2d7d" src="https://github.com/user-attachments/assets/4b79b5bb-6d48-4c7c-b9eb-e59f77262475" /> 𝒸𝓁𝒾ck　 me 　𝑜𝓅eꪀ  ! </summary> 
+<summary> 　<img width="30" height="30" alt="ce3c2d7d" src="https://github.com/user-attachments/assets/4b79b5bb-6d48-4c7c-b9eb-e59f77262475" /> $${\color{#51632c}𝒸𝓁𝒾ck　 me 　𝑜𝓅eꪀ}$$  ! </summary> 
 </div>
 <p>
 <details>
-<summary> 　<img width="20" height="20" alt="2c1e6421" src="https://github.com/user-attachments/assets/1aef2469-bb71-4f7c-8f7a-1296a47b23d0" />　before　 you 　interact </summary>   </summary> 
+<summary> 　<img width="27" height="28" alt="1208199077674881094" src="https://github.com/user-attachments/assets/202b8129-6bcc-4b0f-ac05-7b866a4e2e77" />　before　 you 　interact </summary>   </summary> 
 </div>
 　　　iwc (interact with caution n care) ::  　　if you want to interact w me! I'm very insensitive in some words... flirting is not alright since i don't really like it unless you are my close friend, i am also suspected BPD, so please int w care!  </p>
 yumeshipping :: 　　 i am an selective yumeshipper which i only confirm a specific people and close people, but if you're a voidsharing, or a nonsharing, iwc. yumeship are in strawpage.    </p>
@@ -36,7 +36,7 @@ yumeshipping :: 　　 i am an selective yumeshipper which i only confirm a spec
 </details>
 <p>
 <details>
-<summary> 　<img width="20" height="20" alt="2c1e6421" src="https://github.com/user-attachments/assets/1aef2469-bb71-4f7c-8f7a-1296a47b23d0" />　alliances </summary> 
+<summary> 　<img width="27" height="28" alt="1208199077674881094" src="https://github.com/user-attachments/assets/202b8129-6bcc-4b0f-ac05-7b866a4e2e77" />　alliances </summary> 
 </div>
   　　 　　<a href=https://rentry.co/ro9loxians>the rob10xians</a> 　 ✧　  ꒰১ <a href=https://github.com/pwppy>rhett/kiki</a>　  <a href=https://github.com/healrr>sword</a>　  <a href=https://github.com/clockworkclover>kaito</a>　  <a href=https://github.com/deviousduoz>jay</a>　  <a href=https://github.com/202xyuri>null</a>　  <a href=https://github.com/casino-flush>chance</a> 　 <a href=https://github.com/prizeflush>elli</a>　  <a href=https://github.com/TheTrueEyecollective>scythe/grapplinghook</a>　  & 　 scarlet ໒꒱
 <div>
@@ -47,7 +47,7 @@ yumeshipping :: 　　 i am an selective yumeshipper which i only confirm a spec
 <img width="200" height="200" alt="668_sin_titulo_20261106074355" src="https://github.com/user-attachments/assets/9246c3b2-19e0-4d94-ae04-7e20701805ff" />
 </details>
 <details>
-<summary> 　<img width="20" height="20" alt="2c1e6421" src="https://github.com/user-attachments/assets/1aef2469-bb71-4f7c-8f7a-1296a47b23d0" />　gallery </summary> 
+<summary> 　<img width="27" height="28" alt="1208199077674881094" src="https://github.com/user-attachments/assets/202b8129-6bcc-4b0f-ac05-7b866a4e2e77" />　gallery </summary> 
 </div>
  hi <br> 
 </details>   
