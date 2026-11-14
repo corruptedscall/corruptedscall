@@ -26,7 +26,7 @@ dni :: basic dni, dni under 13, t.r.a.s.h ( Transphobic, racist, ableist, sexist
 information because of a few incidents :: i am very bad at communicating and might make people nearby uncomfortable, i can't control my emotions and feelings wisely and carefully, i have a very fast emotion swing i can get upset and frustrated easily. i always say something repetitive that most people got uncomfortable and boring. please when I get off track just remind me everytime. because I have a bad brain signals + hard to control my behaviour. i can be very energetic, anxious, and annoying too. 
 <br>
 </details>
-
+<p align="center"> if i follow you it means you're cool! </p>  
 <details>
 <summary> 　　alliances </summary> 
 </div>
@@ -47,4 +47,4 @@ information because of a few incidents :: i am very bad at communicating and mig
     </td>
  </tr>
 </table>
-if i follow you it means you're cool
+<p align="center"> totally not the guy who keeps listening to cmf ost all the time </p>  
