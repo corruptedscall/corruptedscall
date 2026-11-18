@@ -57,4 +57,4 @@ due to a few past incidents, i would like to clarify that i struggle with commun
   </table>
 </div>
 
-<p align="center"> huge thanks to my best friend <a href=https://github.com/pwppy>rhett/kiki</a> for helping me with my github!~ </p>
+<p align="center"> much appreciated <a href=https://github.com/pwppy>rhett/kiki</a> for helping our github!~ </p>
