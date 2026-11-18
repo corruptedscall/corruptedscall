@@ -24,7 +24,7 @@
   <table>
     <tr>
       <th> $${\color{#8EC05C}she}$$ㅤ  ㅤ $${\color{#d1ff8c}her}$$ㅤ.ㅤ𖥔ㅤ ݁  $${\color{#81e62e}any}$$
-      <th> $${\color{#8EC05C}Inherited  ㅤ ㅤyour  ㅤdad's}$$    ㅤ ㅤ ㅤ  $${\color{#d1ff8c}crazy eyes}$$  
+      <th> $${\color{#8EC05C}Inherited  ㅤ ㅤyour  ㅤdad's}$$   ㅤ ㅤ  $${\color{#d1ff8c}crazyㅤ  eyes}$$  
     </tr>
     <tr>
       <th> <b>cr</b> : @ art not mine
