@@ -43,7 +43,7 @@ due to a few past incidents, i would like to clarify that i struggle with commun
 <details>
 <summary> <img width="10" src="https://github.com/user-attachments/assets/202b8129-6bcc-4b0f-ac05-7b866a4e2e77" /> $${\color{#51632c}trustedㅤ }$$ $${\color{#d1ff8c}alliancesㅤ   ! }$$   </summary> 
 </div>
-   <a href=https://rentry.co/ro9loxians>the rob10xians</a>  ✧  ꒰১ <a href=https://github.com/pwppy>rhett/kiki</a>  <a href=https://github.com/healrr>sword</a>  <a href=https://github.com/clockworkclover>kaito</a>  <a href=https://github.com/deviousduoz>jay</a>  <a href=https://github.com/202xyuri>null</a>  <a href=https://github.com/casino-flush>chance</a>  <a href=https://github.com/prizeflush>elli</a>  <a href=https://github.com/TheTrueEyecollective>scythe/grapplinghook</a>  &  scarlet ໒꒱
+   <a href=https://rentry.co/ro9loxians>the rob10xians</a>  ✧  ꒰১ <a href=https://github.com/pwppy>rhett/kiki</a>  <a href=https://github.com/healrr>sword</a>  <a href=https://github.com/clockworkclover>kaito</a>  <a href=https://github.com/deviousduoz>jay</a>  <a href=https://github.com/202xyuri>null</a>  <a href=https://github.com/casino-flush>chance</a>  <a href=https://github.com/prizeflush>elli</a>  <a href=https://github.com/TheTrueEyecollective>scythe/grapplinghook</a>  &  <a href=https://github.com/Gr1mzR0se>scarlet</a> ໒꒱
 <div>
   best couple :  <a href=https://github.com/callsign8802>casign</a> & <a href=https://github.com/doomed-potential>jague</a>  
         <p>
