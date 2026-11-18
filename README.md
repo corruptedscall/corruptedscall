@@ -1,3 +1,4 @@
+i have no idea whats happening tomy github, im doing expedition ill update soon
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=316h74ok423ktneve5elfllrmlbm&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=316h74ok423ktneve5elfllrmlbm&cover_image=true&theme=natemoo-re&show_offline=false&background_color=78b33d&interchange=true&profanity=false&hide_remaster=false&bar_color=6eb724&bar_color_cover=false">
