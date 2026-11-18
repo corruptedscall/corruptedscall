@@ -22,7 +22,7 @@
     <tr>
       <th> a
       <th> <details>
-<summary> <img width="20" alt="ce3c2d7d" src="https://github.com/user-attachments/assets/4b79b5bb-6d48-4c7c-b9eb-e59f77262475" /> $${\color{#51632c}𝒸𝓁𝒾ckㅤ me ㅤ𝑜𝓅eꪀ}$$  ! </summary> 
+<summary> <img width="20" alt="ce3c2d7d" src="https://github.com/user-attachments/assets/4b79b5bb-6d48-4c7c-b9eb-e59f77262475" /> $${\color{#51632c}𝒸𝓁𝒾ckㅤㅤ  me ㅤ}$$ $${\color{#d1ff8c}𝑜𝓅eꪀㅤ   !}$$ </summary> 
 </div>
 <p>
         
