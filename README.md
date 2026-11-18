@@ -22,12 +22,16 @@ $${\color{#8EC05C}════════════════════�
 
 <p> ๋࣭ ⭑ sometimes $${\color{#51632c}𝗹𝗲𝗮𝘃𝗲　𝗰𝘂𝗱𝗱𝗹𝗲𝘀　𝗮𝗻𝗱　𝗵𝘂𝗴}$$ so i apoligize with that, I get distracted easily whenever my friend came over. </p>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316h74ok423ktneve5elfllrmlbm&cover_image=true&theme=default&show_offline=false&background_color=33491d&interchange=true&profanity=false&hide_remaster=false&bar_color_cover=false&bar_color=6da923)](https://spotify-github-profile.kittinanx.com/api/view?uid=316h74ok423ktneve5elfllrmlbm&redirect=true)
-
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=316h74ok423ktneve5elfllrmlbm&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=316h74ok423ktneve5elfllrmlbm&cover_image=true&theme=default&show_offline=false&background_color=33491d&interchange=true&profanity=false&hide_remaster=false&bar_color_cover=false&bar_color=6da923">
+  </a>
+</p>
 <details>
 <summary> 　<img width="30" alt="ce3c2d7d" src="https://github.com/user-attachments/assets/4b79b5bb-6d48-4c7c-b9eb-e59f77262475" /> $${\color{#51632c}𝒸𝓁𝒾ck　 me 　𝑜𝓅eꪀ}$$  ! </summary> 
 </div>
 <p>
+        
 <details>
 <summary> 　<img width="27" alt="1208199077674881094" src="https://github.com/user-attachments/assets/202b8129-6bcc-4b0f-ac05-7b866a4e2e77" />　before　 you 　interact </summary>   </summary> 
 </div>
