@@ -24,11 +24,7 @@
   <table>
     <tr>
       <th> $${\color{#8EC05C}she}$$ㅤ  ㅤ $${\color{#d1ff8c}her}$$ㅤ.ㅤ𖥔ㅤ ݁  $${\color{#81e62e}any}$$
-      <th> Inherited  ㅤ ㅤyour  ㅤdad's  ㅤ ㅤ ㅤcrazy eyes
-History repeats ㅤ ㅤ ㅤ our ㅤ ㅤ whole  ㅤ ㅤdamn lives
-Yeah,  ㅤthis place  ㅤ ㅤgets ㅤ ㅤ old, but ㅤ ㅤ it's  ㅤ ㅤ ㅤreally hard
-To ㅤ ㅤ ㅤ scrub ㅤ ㅤ the dog  ㅤ ㅤpiss out  ㅤof a ㅤ ㅤ ㅤ white trash ㅤ ㅤ ㅤ heart     
-    to   the   ground
+      <th> $${\color{#8EC05C}Inherited  ㅤ ㅤyour  ㅤdad's}$$    ㅤ ㅤ ㅤ  $${\color{#d1ff8c}crazy eyes}$$  
     </tr>
     <tr>
       <th> <b>cr</b> : @ art not mine
@@ -58,9 +54,9 @@ due to a few past incidents, i would like to clarify that i struggle with commun
 <details>
 <summary> <img width="10" src="https://github.com/user-attachments/assets/202b8129-6bcc-4b0f-ac05-7b866a4e2e77" /> $${\color{#51632c}venomshankㅤ }$$ $${\color{#d1ff8c}galleryㅤ   ! }$$   </summary> 
 </div>
- hi <br> 
-</details>  
-</details> 
+ hi <br>
+</details>
+</details>
   </table>
 </div>
 
