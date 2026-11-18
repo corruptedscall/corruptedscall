@@ -57,7 +57,7 @@ yumeshipping :: 　　 i am an selective yumeshipper which i only confirm a spec
 </div>
  hi <br> 
 </details>  
-
+</details>
 
 
 <p align="center"> huge thanks to my best friend <a href=https://github.com/pwppy>rhett/kiki</a> for helping me with my github! </p>
