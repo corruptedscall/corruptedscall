@@ -24,7 +24,11 @@
   <table>
     <tr>
       <th> $${\color{#8EC05C}she}$$ㅤ  ㅤ $${\color{#d1ff8c}her}$$ㅤ.ㅤ𖥔ㅤ ݁  $${\color{#81e62e}any}$$
-      <th> <details>
+      <th> I know it's ㅤ  ㅤhurting ㅤ  ㅤby now
+And if   you screamㅤ  ㅤ like a siren, I will hit ㅤ  ㅤyou down withㅤ  ㅤ a wire
+    to   the   ground
+    </tr>
+    <tr> <details>
 <summary> <img width="30" alt="ce3c2d7d" src="https://github.com/user-attachments/assets/4b79b5bb-6d48-4c7c-b9eb-e59f77262475" /> $${\color{#51632c}𝒸𝓁𝒾ckㅤㅤ  meㅤ }$$ $${\color{#d1ff8c}𝑜𝓅eꪀㅤ   ! }$$   </summary> 
 </div>
 <p>
@@ -55,7 +59,7 @@ due to a few past incidents, i would like to clarify that i struggle with commun
  hi <br> 
 </details>  
 </details> 
-    </tr>
+      <th> h
   </table>
 </div>
 
