@@ -31,10 +31,11 @@ To ㅤ ㅤ ㅤ scrub ㅤ ㅤ the dog  ㅤ ㅤpiss out  ㅤof a ㅤ ㅤ ㅤ white
     to   the   ground
     </tr>
     <tr>
-      <th> cr : @ twitter artist & @ elli & @ kiki/rhett
+      <th> <b>cr</b> : @ twitter artist & @ elli & @ kiki/rhett
       <th> <details>
 <summary> <img width="10" alt="ce3c2d7d" src="https://github.com/user-attachments/assets/4b79b5bb-6d48-4c7c-b9eb-e59f77262475" /> $${\color{#51632c}𝒸𝓁𝒾ckㅤㅤ  meㅤ }$$ $${\color{#d1ff8c}𝑜𝓅eꪀㅤ   ! }$$   </summary> 
 </div>
+<p>
 <details>
 <summary> <img width="10" alt="1208199077674881094" src="https://github.com/user-attachments/assets/202b8129-6bcc-4b0f-ac05-7b866a4e2e77" /> $${\color{#51632c}beforeㅤㅤ  youㅤ }$$ $${\color{#d1ff8c}interactㅤ   ! }$$   </summary>
 </div>
@@ -43,7 +44,6 @@ yumeshipping ::  i am an selective yumeshipper which i only confirm a specific p
 dni :: basic dni, dni under 13, t.r.a.s.h ( Transphobic, racist, ableist, sexist, or homophobic ), cults / weird religion clans, groomers.   </p>  
 due to a few past incidents, i would like to clarify that i struggle with communication and may unintentionally make people around me uncomfortable. i have difficulty managing my emotions, which can shift very quickly, causing me to become upset or frustrated easily. i also tend to repeat myself excessively, which may become tiring or uncomfortable for others. if i ever get off track, please remind me or gently redirect me. i can also be overly energetic, anxious, and unintentionally overwhelming at times. i sincerely appreciate your patience and understanding.
 </details>
-<p>
 <details>
 <summary> <img width="10" src="https://github.com/user-attachments/assets/202b8129-6bcc-4b0f-ac05-7b866a4e2e77" /> $${\color{#51632c}trustedㅤ }$$ $${\color{#d1ff8c}alliancesㅤ   ! }$$   </summary> 
 </div>
