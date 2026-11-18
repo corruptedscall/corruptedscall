@@ -13,7 +13,7 @@
     <tr>
       <th> <p align="center"> $${\color{#8EC05C}𝑔𝒾𝓋e}$$   $${\color{#d1ff8c}ㅤㅤ baᝯׁƙׁׅ֑ ㅤㅤㅤmy ㅤㅤ𝓭𝓪𝓾𝓰𝓱ter. }$$ </p>
        <p align="center"> <img height="450" alt="Untitled144_20261118153906" src="https://github.com/user-attachments/assets/7ae0a34b-616c-45ba-9932-037ae8325d36"/>
- </p> $${\color{#d1ff8c} 𝓋𝑒𝓃𝑜𝓂shׁׅ֮ɑׁׅ֮ꪀׁׅƙׁׅ֑ }$$ ㅤㅤ/ㅤㅤ $${\color{#b1c27a} ᥅ꫀn }$$
+ </p> $${\color{#d1ff8c} 𝓋𝑒𝓃𝑜𝓂shׁׅ֮ɑׁׅ֮ꪀׁׅƙׁׅ֑  ㅤㅤ𝓀𝒾n}$$ ㅤㅤ/ㅤㅤ $${\color{#b1c27a} ᥅ꫀn }$$
     </tr>
   </table>
 </div>
@@ -24,16 +24,16 @@
   <table>
     <tr>
       <th> $${\color{#8EC05C}she}$$ㅤ  ㅤ $${\color{#d1ff8c}her}$$ㅤ.ㅤ𖥔ㅤ ݁  $${\color{#81e62e}any}$$
-      <th> $${\color{#8EC05C}Inherited  ㅤ ㅤyour  ㅤdad's}$$   ㅤ ㅤ  $${\color{#d1ff8c}crazyㅤ  eyes}$$  
+      <th> $${\color{#8EC05C}R ㅤU}$$    ㅤ  $${\color{#d1ff8c}Mine?}$$  ㅤ * ㅤ $${\color{#435e2a}arcticㅤ monkeys}$$
     </tr>
     <tr>
       <th> <b>cr</b> : @ art not mine
       <th> <details>
-<summary> <img width="5" alt="ce3c2d7d" src="https://github.com/user-attachments/assets/4b79b5bb-6d48-4c7c-b9eb-e59f77262475" /> $${\color{#51632c}𝒸𝓁𝒾ckㅤㅤ  meㅤ }$$ $${\color{#d1ff8c}𝑜𝓅eꪀㅤ   ! }$$   </summary> 
+<summary> ㅤㅤ<img width="10" alt="ce3c2d7d" src="https://github.com/user-attachments/assets/4b79b5bb-6d48-4c7c-b9eb-e59f77262475" /> $${\color{#51632c}ㅤ⊹ㅤㅤㅤㅤ𝒸𝓁𝒾ckㅤㅤㅤ⊹ ࣪ ˖ㅤㅤㅤ  𝓂eㅤ }$$ $${\color{#d1ff8c}𝑜𝓅eꪀㅤㅤ   ! }$$   </summary> 
 </div>
 <p>
 <details>
-<summary> <img width="10" alt="1208199077674881094" src="https://github.com/user-attachments/assets/202b8129-6bcc-4b0f-ac05-7b866a4e2e77" /> $${\color{#51632c}beforeㅤㅤ  youㅤ }$$ $${\color{#d1ff8c}interactㅤ   ! }$$   </summary>
+<summary> <img width="10" alt="1208199077674881094" src="https://github.com/user-attachments/assets/202b8129-6bcc-4b0f-ac05-7b866a4e2e77" /> $${\color{#51632c}beforeㅤ  youㅤ }$$ $${\color{#d1ff8c}interactㅤ  ! }$$   </summary>
 </div>
 iwc (interact with caution n care) ::  if you want to interact w me! I'm very insensitive in some words... flirting is not alright since i don't really like it unless you are my close friend, i am also suspected BPD, so please int w care!  </p>
 yumeshipping ::  i am an selective yumeshipper which i only confirm a specific people and close people, but if you're a voidsharing, or a nonsharing, iwc. yumeship are in strawpage.    </p>
@@ -57,7 +57,13 @@ due to a few past incidents, i would like to clarify that i struggle with commun
  hi <br>
 </details>
 </details>
-  </table>
-</div>
-
+ </tr>
+   <tr>
+     <th> h
+      <th> $${\color{#d1ff8c}ꪮꪮh,ㅤ bꪖ᥇y, ㅤ𝓭𝓸n'tׁׅ ㅤㅤyꪮꪊ ㅤkꪀꪮ᭙ㅤ I ㅤ꯱ׁׅ֒υׁׅ⨍fe᥅?}$$ 
+        <p> $${\color{#51632c}oꫝ-ꪮꪮh,ㅤ 𝒷𝒶𝒷y, ㅤcꪖꪀㅤ 𝔂𝓸uㅤㅤ 𝓱𝓮ar ㅤme ㅤm𝑜𝒶n?}$$
+        </tr>
+      </table>
+  </div>
+    
 <p align="center"> much appreciated <a href=https://github.com/pwppy>rhett/kiki</a> for helping our github!~ </p>
