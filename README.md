@@ -31,7 +31,7 @@ To ㅤ ㅤ ㅤ scrub ㅤ ㅤ the dog  ㅤ ㅤpiss out  ㅤof a ㅤ ㅤ ㅤ white
     to   the   ground
     </tr>
     <tr>
-      <th> <b>cr</b> : @ twitter artist & @ elli & @ kiki/rhett
+      <th> <b>cr</b> : @ art not mine
       <th> <details>
 <summary> <img width="10" alt="ce3c2d7d" src="https://github.com/user-attachments/assets/4b79b5bb-6d48-4c7c-b9eb-e59f77262475" /> $${\color{#51632c}𝒸𝓁𝒾ckㅤㅤ  meㅤ }$$ $${\color{#d1ff8c}𝑜𝓅eꪀㅤ   ! }$$   </summary> 
 </div>
