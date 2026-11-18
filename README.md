@@ -53,7 +53,9 @@ due to a few past incidents, i would like to clarify that i struggle with commun
  hi <br> 
 </details>  
 </details> 
-      <th> hi
+  <table>
+    <tr>
+      <th> it
     </tr>
   </table>
 </div>
