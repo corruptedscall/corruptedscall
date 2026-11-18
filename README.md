@@ -24,12 +24,14 @@
   <table>
     <tr>
       <th> $${\color{#8EC05C}she}$$ㅤ  ㅤ $${\color{#d1ff8c}her}$$ㅤ.ㅤ𖥔ㅤ ݁  $${\color{#81e62e}any}$$
-      <th> I know it's ㅤ  ㅤhurting ㅤ  ㅤby now
-And if   you screamㅤ  ㅤ like a siren, I will hit ㅤ  ㅤyou down withㅤ  ㅤ a wire     
+      <th> Inherited  ㅤ ㅤyour  ㅤdad's  ㅤ ㅤ ㅤcrazy eyes
+History repeats ㅤ ㅤ ㅤ our ㅤ ㅤ whole  ㅤ ㅤdamn lives
+Yeah,  ㅤthis place  ㅤ ㅤgets ㅤ ㅤ old, but ㅤ ㅤ it's  ㅤ ㅤ ㅤreally hard
+To ㅤ ㅤ ㅤ scrub ㅤ ㅤ the dog  ㅤ ㅤpiss out  ㅤof a ㅤ ㅤ ㅤ white trash ㅤ ㅤ ㅤ heart     
     to   the   ground
     </tr>
     <tr>
-      <th> 
+      <th> art arent mine! cred : @ twitter artist & @ elli
       <th> <details>
 <summary> <img width="30" alt="ce3c2d7d" src="https://github.com/user-attachments/assets/4b79b5bb-6d48-4c7c-b9eb-e59f77262475" /> $${\color{#51632c}𝒸𝓁𝒾ckㅤㅤ  meㅤ }$$ $${\color{#d1ff8c}𝑜𝓅eꪀㅤ   ! }$$   </summary> 
 </div>
