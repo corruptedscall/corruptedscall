@@ -17,7 +17,7 @@ i have no idea whats happening tomy github, im doing expedition ill update soon
   </table>
 </div>
 
-<p align="center"> best view :ㅤ     ㅤ$${\color{#d1ff8c}computerㅤ / ㅤpc }$$
+<p align="center"> best view :ㅤ     ㅤ$${\color{#8EC05C}pc  /  computer}$$
  
 <div align="center">
   <table>
