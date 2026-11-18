@@ -53,6 +53,7 @@ due to a few past incidents, i would like to clarify that i struggle with commun
  hi <br> 
 </details>  
 </details> 
+      <th> hi
     </tr>
   </table>
 </div>
