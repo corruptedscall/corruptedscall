@@ -19,6 +19,8 @@
 </div>
 
 <p align="center"> best view :       $${\color{#8EC05C}pc  /  computer}$$ </p>
+
+<p align="center"> <a href=https://corruptedcalls.straw.page/>strawpage</a>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  <a href=https://corruptedscall.atabook.org/>atabook</a> </p>    
  
 <div align="center">
   <table>
