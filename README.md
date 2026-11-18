@@ -4,11 +4,12 @@
   </a>
 </p>
 
+<p align="center"> <a href="https://hits.sh/github.com/corruptedscall/"><img alt="Hits" src="https://hits.sh/github.com/corruptedscall.svg?style=for-the-badge&label=BITE%20COUNT&color=7faf49"/></a> </p>
 
 <div align="center">
   <table>
     <tr>
-      <th> <p align="center"> $${\color{#8EC05C}𝑔𝒾𝓋e}$$   $${\color{#a8d466}ㅤㅤ baᝯׁƙׁׅ֑ ㅤㅤㅤmy ㅤㅤ𝓭𝓪𝓾𝓰𝓱ter. }$$ </p>
+      <th> <p align="center"> $${\color{#8EC05C}𝑔𝒾𝓋e}$$   $${\color{#d1ff8c}ㅤㅤ baᝯׁƙׁׅ֑ ㅤㅤㅤmy ㅤㅤ𝓭𝓪𝓾𝓰𝓱ter. }$$ </p>
        <p align="center"> <img width="500" alt="Untitled136_20261114113550" src="https://github.com/user-attachments/assets/297b994d-d00f-4891-ae32-3e01b279a2ce"/> </p> venomshankㅤㅤ/ㅤㅤren 
     </tr>
   </table>
