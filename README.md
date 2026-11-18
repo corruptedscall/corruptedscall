@@ -29,7 +29,7 @@
     <tr>
       <th> <b>cr</b> : @ art not mine
       <th> <details>
-<summary> <img width="10" alt="ce3c2d7d" src="https://github.com/user-attachments/assets/4b79b5bb-6d48-4c7c-b9eb-e59f77262475" /> $${\color{#51632c}𝒸𝓁𝒾ckㅤㅤ  meㅤ }$$ $${\color{#d1ff8c}𝑜𝓅eꪀㅤ   ! }$$   </summary> 
+<summary> <img width="5" alt="ce3c2d7d" src="https://github.com/user-attachments/assets/4b79b5bb-6d48-4c7c-b9eb-e59f77262475" /> $${\color{#51632c}𝒸𝓁𝒾ckㅤㅤ  meㅤ }$$ $${\color{#d1ff8c}𝑜𝓅eꪀㅤ   ! }$$   </summary> 
 </div>
 <p>
 <details>
@@ -46,10 +46,10 @@ due to a few past incidents, i would like to clarify that i struggle with commun
    <a href=https://rentry.co/ro9loxians>the rob10xians</a>  ✧  ꒰১ <a href=https://github.com/pwppy>rhett/kiki</a>  <a href=https://github.com/healrr>sword</a>  <a href=https://github.com/clockworkclover>kaito</a>  <a href=https://github.com/deviousduoz>jay</a>  <a href=https://github.com/202xyuri>null</a>  <a href=https://github.com/casino-flush>chance</a>  <a href=https://github.com/prizeflush>elli</a>  <a href=https://github.com/TheTrueEyecollective>scythe/grapplinghook</a>  &  scarlet ໒꒱
 <div>
   best couple :  <a href=https://github.com/callsign8802>casign</a> & <a href=https://github.com/doomed-potential>jague</a>  
-        <div>
+        <p>
          shoutout to ,greenames,<a href=https://ponytown.fandom.com/wiki/Paws_Across_The_World>paws across the world</a> !! </div>
  
-<img width="200" src="https://github.com/user-attachments/assets/9246c3b2-19e0-4d94-ae04-7e20701805ff" />
+<img width="100" src="https://github.com/user-attachments/assets/9246c3b2-19e0-4d94-ae04-7e20701805ff" />
 </details>
 <details>
 <summary> <img width="10" src="https://github.com/user-attachments/assets/202b8129-6bcc-4b0f-ac05-7b866a4e2e77" /> $${\color{#51632c}venomshankㅤ }$$ $${\color{#d1ff8c}galleryㅤ   ! }$$   </summary> 
