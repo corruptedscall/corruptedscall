@@ -21,7 +21,7 @@
 <div align="center">
   <table>
     <tr>
-      <th> a
+      <th> $${\color{#8EC05C}she}$$ㅤㅤ $${\color{#d1ff8c}her}$$ㅤ.ㅤ𖥔ㅤ ݁  $${\color{#81e62e}any}$$
       <th> <details>
 <summary> <img width="30" alt="ce3c2d7d" src="https://github.com/user-attachments/assets/4b79b5bb-6d48-4c7c-b9eb-e59f77262475" /> $${\color{#51632c}𝒸𝓁𝒾ckㅤㅤ  me ㅤ}$$ $${\color{#d1ff8c}𝑜𝓅eꪀㅤ   !}$$ </summary> 
 </div>
