@@ -65,5 +65,11 @@ due to a few past incidents, i would like to clarify that i struggle with commun
         </tr>
       </table>
   </div>
+
+<p align="center"> <details>
+<summary>  $${\color{#51632c}𝓲n𝒻oㅤ &ㅤ υׁׅ℘ժׁׅ݊ates}$$  </summary>
+<div>
+11/18 ive been sitting for 16  hours for this + i have something to host and im fuming, i took some insp in kiki's / rhett's !
+</details> <p>
     
 <p align="center"> much appreciated <a href=https://github.com/pwppy>rhett/kiki</a> for helping our github!~ </p>
