@@ -1,4 +1,12 @@
-<p align="center"> coughs. coughs. sorry for causing cmf i didnt do that i swear ehhhhh </p>
+<div align="center">
+  <table>
+    <tr>
+<th> <p align="center"> To all of  ㅤㅤㅤㅤthese  ㅤㅤㅤㅤwarrior  ㅤㅤㅤㅤcity,ㅤㅤ we are here  
+To all ㅤㅤnerds, ㅤㅤfreaks ㅤㅤall at  ㅤㅤㅤㅤthe bar   raise the hand  ㅤㅤㅤㅤuntil the last ㅤㅤㅤㅤstrapped  ,     AND ONEㅤㅤㅤㅤ enter the machine unti ㅤㅤㅤㅤ it ㅤㅤㅤㅤ pops    
+    </tr>
+  </table>
+</div>
+
 
 <p align="center"> $${\color{#d1ff8c}always ㅤㅤlocatedㅤㅤ at ㅤtheㅤㅤ torches~}$$ </p>
   
