@@ -1,4 +1,6 @@
-<p align="center"> coughs. coughs. sorry for causing cmf i didnt do that i swear ehhhhh
+<p align="center"> coughs. coughs. sorry for causing cmf i didnt do that i swear ehhhhh </p>
+
+<p align="center"> $${\color{#d1ff8c}always ㅤㅤlocatedㅤㅤ at ㅤtheㅤㅤ torches~}$$ </p>
   
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=316h74ok423ktneve5elfllrmlbm&redirect=true">
