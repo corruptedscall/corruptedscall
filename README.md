@@ -73,7 +73,7 @@ due to a few past incidents, i would like to clarify that i struggle with commun
     <tr>
       <th> text text 1 
       <th> <details>
-<summary> ㅤㅤ<img width="10" alt="ce3c2d7d" src="https://github.com/user-attachments/assets/4b79b5bb-6d48-4c7c-b9eb-e59f77262475" /> $${\color{#51632c}ㅤ⊹ㅤㅤㅤㅤ𝒸𝓁𝒾ckㅤㅤㅤ⊹ ࣪ ˖ㅤㅤㅤ  𝓂eㅤ }$$ $${\color{#d1ff8c}𝑜𝓅eꪀㅤㅤ   ! }$$   </summary> <div>
+<summary> ㅤㅤ<img width="10" alt="ce3c2d7d" src="https://github.com/user-attachments/assets/4b79b5bb-6d48-4c7c-b9eb-e59f77262475" /> $${\color{#51632c}ㅤ⊹ㅤㅤㅤㅤ𝒸𝓁𝒾ckㅤㅤㅤ⊹ ࣪ ˖ㅤㅤㅤ  𝓂eㅤ }$$ $${\color{#d1ff8c}𝑜𝓅eꪀㅤㅤ   ! }$$   </summary>
 <p>
   hi
 </details>
