@@ -32,7 +32,7 @@
     </tr>
     <tr>
       <th> a
-      <th> ok remaking this, im hungry
+      <th> ok remaking this soon, im hungry
  </tr>
    <tr>
      <th> ⊹ ࣪ ˖ <img width="20" height="20" alt="tumblr_cf21f25891d43eadcb9b58792a2e9c9e_750eeef4_75" src="https://github.com/user-attachments/assets/0653acb9-004e-4d5c-90e4-e512fa22089c" />
