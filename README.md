@@ -21,7 +21,7 @@
   <img height="300" alt="Untitled144_20261118153906" src="https://github.com/user-attachments/assets/7ae0a34b-616c-45ba-9932-037ae8325d36"/>
     </tr>
     <tr>
-      <th> a
+      <th> <img height="200" alt="GIF_20261120_201613_215" src="https://github.com/user-attachments/assets/2fca8d16-b5e2-4fea-a68d-446fae4087ab" />
       <th> ok remaking this soon, im hungry
  </tr>
    <tr>
@@ -40,7 +40,12 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=316h74ok423ktneve5elfllrmlbm&cover_image=true&theme=natemoo-re&show_offline=true&background_color=78b33d&interchange=true&profanity=false&hide_remaster=false&bar_color=6eb724&bar_color_cover=false">
   </a>
 </p>
-  
+
+<img height="200" alt="GIF_20261120_201046_520" src="https://github.com/user-attachments/assets/49f0fb27-c210-4896-ab47-0f1bebcb614d" />
+
+
+ac : @ven0mshank1 @kamwaao @l_xrics @iforgot
+
 <p align="center"> 
 <details>
 <summary> $${\color{#51632c}ꫀ᥊ρaꪀᦔㅤㅤ fꪮ᥅ ㅤㅤiꪀׁׅ⨍o}$$ </summary>
