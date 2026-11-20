@@ -15,9 +15,10 @@
 <div align="center">
   <table>
     <tr>
-      <th> $${\color{#8EC05C}she}$$ㅤ  ㅤ $${\color{#d1ff8c}her}$$ㅤ.ㅤ𖥔ㅤ ݁  $${\color{#81e62e}any}$$ <p></p>
-        so ㅤ468 ㅤㅤ4w3 ㅤㅤ𖥔ㅤ<p></p>
-        ㅤselective yume ofㅤㅤ𖥔ㅤ father overseerㅤㅤㅤ & ㅤㅤㅤㅤheavy kin ofㅤㅤ𖥔ㅤㅤ venomshank
+      <th> <div align="left"> ㅤㅤㅤ   $${\color{#8EC05C}she}$$ㅤ  ㅤ $${\color{#d1ff8c}her}$$ㅤ.ㅤ𖥔ㅤ ݁  $${\color{#81e62e}any}$$ <p></p>
+      ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  so ㅤ468 ㅤ𖥔ㅤ4w3 ㅤㅤ``ㅤ<p></p>
+       `` ㅤselective yume ofㅤㅤ𖥔ㅤ     $${\color{#21967d}father overseer}$$    ㅤㅤ<p></p>ㅤ 
+        ㅤㅤ``ㅤㅤheavy kin ofㅤㅤ𖥔ㅤㅤ        $${\color{#8EC05C}venomshank}$$        
       <th> 
 <p align="center"> $${\color{#8EC05C}𝑔𝒾𝓋e}$$   $${\color{#d1ff8c}ㅤㅤ baᝯׁƙׁׅ֑ ㅤㅤㅤmy ㅤㅤ𝓭𝓪𝓾𝓰𝓱ter. }$$ <p> 
   <img height="300" alt="Untitled144_20261118153906" src="https://github.com/user-attachments/assets/7ae0a34b-616c-45ba-9932-037ae8325d36"/>
