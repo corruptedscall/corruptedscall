@@ -1,7 +1,7 @@
 <div align="center">
   <table>
     <tr>
-<th> <p align="center"> I'm ㅤerasingㅤㅤ myselfㅤㅤ from ㅤthe ㅤnarrative
+<th> I'm ㅤerasingㅤㅤ myselfㅤㅤ from ㅤthe ㅤnarrative
     </tr>
   </table>
 </div>
