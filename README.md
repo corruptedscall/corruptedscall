@@ -5,8 +5,10 @@
 To ㅤㅤmy ㅤㅤㅤthoughts ㅤwhichㅤㅤㅤㅤㅤ helpㅤ to ㅤㅤㅤㅤnote <p></p>
    <div align="center"> <img height="300" alt="Untitled144_20261118153906" src="https://github.com/user-attachments/assets/9e97056c-28ad-47ab-bea1-de467bf6bd13" /> <p></p>
   <div align="center"> $${\color{#8EC05C}busyㅤ beingㅤ𖹭ㅤㅤ yoursㅤ toㅤㅤㅤ⊹ ࣪ ˖ㅤㅤ fall }$$ <p></p>
-  $${\color{#a0ff33}sheㅤ / ㅤherㅤ/ ㅤany}$$ ㅤㅤㅤ#ㅤㅤ $${\color{#4f8a32}so ㅤ468}$$ ㅤㅤ˖᯽ ݁˖ㅤㅤㅤㅤ$${\color{#80a32e}suspectedㅤ bpd & adhd}$$    <p></p>
-
+  $${\color{#a0ff33}sheㅤ / ㅤherㅤ/ ㅤany}$$ ㅤㅤㅤ#ㅤㅤ $${\color{#4f8a32}so ㅤ468}$$ ㅤㅤ˖᯽ ݁˖ㅤㅤ<p></p>ㅤㅤ
+    
+  $${\color{#a0ff33}suspectedㅤㅤ:}$$ ㅤ,  ᯽ .ㅤ$${\color{#a0ff33}adhdㅤ & ㅤbpd}$$
+  
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=316h74ok423ktneve5elfllrmlbm&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=316h74ok423ktneve5elfllrmlbm&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=a6ff6b&bar_color_cover=false">
