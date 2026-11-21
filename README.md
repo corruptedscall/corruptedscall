@@ -7,7 +7,7 @@
     <tr>
 <td>   <div align="center">   $${\color{#51632c}mother'sㅤㅤㅤㅤㅤ pickㅤㅤㅤㅤㅤㅤㅤㅤ the ㅤㅤㅤpieces up}$$   <p></p>
 <div align="center"> $${\color{#51632c}broken ㅤㅤㅤㅤchild ㅤㅤㅤㅤㅤa ㅤbroken}$$ ㅤㅤㅤㅤ<img height="28" alt="1208193561984639036" src="https://github.com/user-attachments/assets/dba1ffc3-dc6f-4363-badf-30412a76a5d2" /> $${\color{#b7ff8a}ㅤㅤㅤㅤcup}$$ <p></p>
-   <div align="center"> <img height="300" alt="Untitled144_20261118153906" src="https://github.com/user-attachments/assets/9e97056c-28ad-47ab-bea1-de467bf6bd13" /> <p></p>
+   <div align="center"> <img height="500" alt="Untitled144_20261118153906" src="https://github.com/user-attachments/assets/9e97056c-28ad-47ab-bea1-de467bf6bd13" /> <p></p>
   <div align="center"> $${\color{#8EC05C}busyㅤ beingㅤ𖹭ㅤㅤ yoursㅤ toㅤㅤㅤ⊹ ࣪ ˖ㅤㅤ fall }$$ <p></p>
   $${\color{#a0ff33}sheㅤ / ㅤherㅤ/ ㅤany}$$ ㅤㅤㅤ  $${\color{#aaff6e}::}$$  ㅤㅤ $${\color{#4f8a32}so ㅤ468}$$ ㅤㅤ  $${\color{#d2ff8a}˖᯽ ݁˖}$$  ㅤㅤ<p></p>ㅤㅤ
   $${\color{#a0ff33}suspectedㅤㅤ:}$$ ㅤ  $${\color{#51632c}, ⊹ ᯽ .}$$  ㅤ<img width="20" height="20" alt="917n9s" src="https://github.com/user-attachments/assets/0e01a185-6887-4568-9ab7-4307270813ee" />ㅤㅤㅤ    $${\color{#a0ff33}adhdㅤㅤㅤ⊹ㅤㅤㅤbpd}$$ <p></p>ㅤㅤ
