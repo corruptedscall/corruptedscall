@@ -1,23 +1,35 @@
 <div align="center">
   <table>
     <tr>
-<td> <div align="center">
- <img height="300" alt="Untitled144_20261118153906" src="https://github.com/user-attachments/assets/9e97056c-28ad-47ab-bea1-de467bf6bd13" /> <p></p>
+<td>   <div align="center"> The poemsㅤㅤㅤ Iㅤ wrote ㅤrevealingㅤㅤㅤㅤㅤㅤ the ㅤㅤㅤcode <p></p>
+To ㅤㅤmy ㅤㅤㅤthoughts ㅤwhichㅤㅤㅤㅤㅤ helpㅤ to ㅤㅤㅤㅤnote <p></p>
+   <div align="center"> <img height="300" alt="Untitled144_20261118153906" src="https://github.com/user-attachments/assets/9e97056c-28ad-47ab-bea1-de467bf6bd13" /> <p></p>
   <div align="center"> $${\color{#8EC05C}busyㅤ beingㅤ𖹭ㅤㅤ yoursㅤ toㅤㅤㅤ⊹ ࣪ ˖ㅤㅤ fall }$$ <p></p>
-  sheㅤ / ㅤherㅤ/ ㅤanyㅤㅤㅤㅤㅤ so 468 ㅤㅤ˖᯽ ݁˖ㅤㅤㅤㅤsuspectedㅤ bpd & adhd <p></p>
+  $${\color{#a0ff33}sheㅤ / ㅤherㅤ/ ㅤany}$$ ㅤㅤㅤ#ㅤㅤ $${\color{#4f8a32}so ㅤ468}$$ ㅤㅤ˖᯽ ݁˖ㅤㅤㅤㅤ$${\color{#80a32e}suspectedㅤ bpd & adhd}$$    <p></p>
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=316h74ok423ktneve5elfllrmlbm&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=316h74ok423ktneve5elfllrmlbm&cover_image=true&theme=natemoo-re&show_offline=true&background_color=78b33d&interchange=false&profanity=false&hide_remaster=false&bar_color=b3ff66&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=316h74ok423ktneve5elfllrmlbm&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=a6ff6b&bar_color_cover=false">
   </a>
 </p>
-  
- ㅤㅤㅤㅤ   easily tired ㅤㅤㅤㅤ& ㅤㅤㅤㅤday dreammingㅤㅤ .ㅤㅤ fast mood swings. ⊹ ࣪ ˖
+
+ ㅤㅤㅤㅤ   easily tired ㅤㅤㅤㅤ& ㅤㅤㅤㅤday dreammingㅤㅤ .ㅤㅤ fast mood swings. ⊹ ࣪ ˖ <p> </p>
+<div align="center">
+  <table>
+    <tr>
+<td> <div align="center"> That ㅤIㅤㅤㅤ realized ㅤㅤㅤyourㅤ deepest ㅤㅤㅤdesire <p></p>
+Pick ㅤㅤupㅤ theㅤ phone,ㅤㅤㅤㅤㅤ enjoy ㅤtheㅤㅤㅤㅤㅤㅤㅤ unknown <p></p>
+   </tr>
+  </table>
+</div>
 </tr>
   </table>
 </div>
 
-<details>
+<div align="center">
+  <table>
+    <tr>
+<td> <details>
 <summary>  <img height="20" alt="tumblr_42228e7feab17886231976b712ea0e5f_c4a821f3_75" src="https://github.com/user-attachments/assets/85498ecf-cd3b-4131-80cd-fdc01186f049" />  $${\color{#51632c}ㅤ⊹ㅤ ㅤㅤ𝒸𝓁𝒾ckㅤㅤㅤ⊹ ࣪ ˖ㅤㅤㅤ  𝓂eㅤ }$$ $${\color{#d1ff8c}𝑜𝓅eꪀㅤㅤ   ! }$$   </summary> 
 </div>
 <p>
@@ -48,3 +60,6 @@ sometime i use we/us when i get upset too much. <p></p>
  hi <br>
 </details>
 </details>
+ </tr>
+  </table>
+</div>
