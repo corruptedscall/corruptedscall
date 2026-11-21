@@ -1,3 +1,5 @@
+<p align="center"> <a href="https://hits.sh/github.com/corruptedscall/"><img alt="Hits" src="https://hits.sh/github.com/corruptedscall.svg?style=for-the-badge&label=BITE%20COUNT&color=7faf49"/></a> </p>
+
 <div align="center">
   <table>
     <tr>
