@@ -59,7 +59,10 @@ sometime i use we/us when i get upset too much. <p></p>
 <details>
 <summary> <img width="10" src="https://github.com/user-attachments/assets/202b8129-6bcc-4b0f-ac05-7b866a4e2e77" /> $${\color{#51632c}venomshankㅤ }$$ $${\color{#d1ff8c}galleryㅤ     ! }$$   <img height="20" alt="tumblr_c055e94696adbbaa68960afa7c6a71b0_45586e85_75" src="https://github.com/user-attachments/assets/80d2094a-243f-4273-8ede-b36223a2473f" />  </summary> 
 </div>
- hi <br>
+gallery is where i can post my art, animations and things! <p></p>
+11/21/2026
+  <img height="300" alt="image" src="https://github.com/user-attachments/assets/c2297eb2-9b2d-44cc-8537-725e2df9757b" />
+
 </details>
 </details>
  </tr>
